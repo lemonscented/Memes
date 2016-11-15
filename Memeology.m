@@ -1,2 +1,1 @@
-%You're not a meme lord
-%You are mean
+%Hi Christian!! I love love love love love love you
